@@ -2,9 +2,11 @@
 
 In today’s digital world, a professional headshot is essential for LinkedIn profiles, resumes, corporate websites, and social media. However, professional photoshoots can be expensive and time-consuming. This is where **HeadshotPro AI** comes in—a revolutionary AI-powered tool that generates high-quality, studio-grade headshots in minutes.  
 
-[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://www.headshotpro.com/?via=muhammad-bilal)
+<a href="https://www.headshotpro.com/?via=muhammad-bilal">
+  <img src="https://github.com/user-attachments/assets/b9eb4d08-74cb-4b32-8a87-91394ac31fe6" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
 
-# Claim Your Coupon Code to Get 90% OFF 👆
+# Claim Your Coupon Code 👆👆👆
 
 In this **detailed HeadshotPro AI review**, we’ll explore its features, benefits, pricing, and how it compares to traditional photography.  
 
@@ -12,12 +14,15 @@ In this **detailed HeadshotPro AI review**, we’ll explore its features, benefi
 
 ## **What is HeadshotPro AI?**  
 
-[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://www.headshotpro.com/?via=muhammad-bilal)
+<a href="https://www.headshotpro.com/?via=muhammad-bilal">
+  <img src="https://github.com/user-attachments/assets/b9eb4d08-74cb-4b32-8a87-91394ac31fe6" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
 
-# Claim Your Coupon Code to Get 90% OFF 👆
-
+# Claim Your Coupon Code 👆👆👆
 
 **HeadshotPro AI** is an advanced artificial intelligence tool that transforms your selfies into professional-looking headshots. Using deep learning algorithms, it enhances facial features, adjusts lighting, and provides various styles to match corporate, creative, or casual needs—without requiring a physical photoshoot.  
+
+# [Use This Exclusive Link to Get 90% OFF Discount Automatically ](https://www.headshotpro.com/?via=muhammad-bilal)
 
 ### **Key Features of HeadshotPro AI**  
 
